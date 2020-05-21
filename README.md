@@ -4,7 +4,7 @@ discuss your algorithms
 ![WhatsApp Image 2020-05-21 at 15 19 02](https://user-images.githubusercontent.com/65642033/82569827-60d60c00-9b9e-11ea-8a6e-1aabf8a77e00.jpeg)
 ![WhatsApp Image 2020-05-21 at 15 19 03](https://user-images.githubusercontent.com/65642033/82569807-5c115800-9b9e-11ea-8cbf-a79bf4c5965e.jpeg)
 ![WhatsApp Image 2020-05-21 at 15 19 03 (2)](https://user-images.githubusercontent.com/65642033/82569792-56b40d80-9b9e-11ea-9bfd-9f822078f53a.jpeg)
-
+![WhatsApp Image 2020-05-21 at 15 19 02](https://user-images.githubusercontent.com/65642033/82569783-5451b380-9b9e-11ea-8c8f-a041b5dcd5c1.jpeg)
 
 
 
